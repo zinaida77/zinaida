@@ -1,2 +1,2 @@
-assq
+sassq
 12# zinaida
