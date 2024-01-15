@@ -1,5 +1,5 @@
 sassqSFDFSA
-12# zinaidagbdfgg
+12
 zxxаввывпыв
 xsdsczsaacscsadsd
 gggfgjfjhfth
