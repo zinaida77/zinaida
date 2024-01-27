@@ -1,7 +1,3 @@
 sassqSFDFSA
 12cxzcCASXA
-zxxаввывпыв
-xsdscz
-gggfgjfjhfth
-qwsasfdsfsfe
-hgjglhjkjl
+zxx
