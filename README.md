@@ -3,6 +3,4 @@ sassqSFDFSA
 zxx
 gsgdgdfxgbdfx
 vbfghyuxh
-gdfgg
-fxgsdfdsfs
-gzgdsgsdgS
+g
