@@ -1,4 +1,2 @@
 sassqSFDFSA
-12cxzcCASXA
-zxx
-gsgdgdf
+12c
